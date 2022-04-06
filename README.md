@@ -1,3 +1,6 @@
 # training_git_06042022
-this is training repo
-Nguyen Tuan Kiet
+this is my training repoooooooooooooooooooremoteremote
+Kiet Tuan Nguyen
+KIET TUAN NGUYEN CAPLOCKS
+
+leoniel messio
